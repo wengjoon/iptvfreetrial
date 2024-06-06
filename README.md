@@ -47,6 +47,19 @@ Understanding IPTV
 (https://doodleordie.com/profile/metasmarters)
 (https://www.lomography.com/homes/metasmarters)
 (https://www.spreaker.com/podcast/metasmarters--6199133)
+(https://x.com/MetasmarterlPTV)
+
+(https://www.hotfrog.com/company/578dce9316d83abbaaded376c8ba8004)
+
+(https://alltop.com/my/mouadj)
+
+(https://www.manta.com/c/m1wd1cy/metasmarters)
+
+(https://www.merchantcircle.com/metasmarters-new-york-ny)
+
+(https://www.brownbook.net/business/52778753/metasmarters/)
+
+(https://ezlocal.com/ny/new-york/movies/0918137913)
 
 
 
