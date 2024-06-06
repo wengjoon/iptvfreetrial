@@ -41,6 +41,13 @@ Understanding IPTV
 [metasmarters merchantcircle](https://www.merchantcircle.com/metasmarters-new-york-ny)
 [metasmarters brownbook](https://www.brownbook.net/business/52778753/metasmarters/)
 [metasmarters ezlocal](https://ezlocal.com/ny/new-york/movies/0918137913)
+[Best IPTV Group](https://peatix.com/group/16309554)
+[MetaSmarters IPTV Twitter](https://x.com/metasmarters)
+[Iptv trial](https://metasmarters.bandcamp.com/album/metasmarters-free-iptv-trial)
+(https://doodleordie.com/profile/metasmarters)
+(https://www.lomography.com/homes/metasmarters)
+(https://www.spreaker.com/podcast/metasmarters--6199133)
+
 
 
 What is IPTV?
