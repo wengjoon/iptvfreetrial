@@ -1,4 +1,4 @@
-# iptvfreetrial
+# Is IPTV Legal? Everything You Need to Know
 
 Introduction
 
